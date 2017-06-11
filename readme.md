@@ -4,7 +4,9 @@
 
 I get a lot of questions by email. This way anyone can read the answer!
 
-Anything means *anything*. Personal questions. Money. Work. Life. Code. Whatever.
+Anything means *anything*. Personal questions. Money. Work. Life. Code. Music. Parenting. Whatever.
+
+Questions (issues) will be closed as I answer them so I can keep track but you can always comment on any so long as they are not locked. I reserve the right to decline to answer a given question.
 
 ---
 
